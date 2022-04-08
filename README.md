@@ -1,0 +1,1 @@
+ "Once you've negated everything and done away completely with all forms of existence, once nothing can survive in the path of your negativity, who can you turn to, laughing or crying, if not your own self? Once you have witnessed the fall of the entire world, there is nothing left but for you to fall too."
